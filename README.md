@@ -1,8 +1,8 @@
 👋 Hi, I’m Stef 
 
-🚀 Tech Recruiter for HENI!
+🚀 Tech Recruiter @ HENI!
 
-👀 I’m interested in speaking to talented Engineers
+👀 I’m interested in speaking to talented Developers
 
 🌱 I’m currently learning about Blockchain and NFTs!
 
